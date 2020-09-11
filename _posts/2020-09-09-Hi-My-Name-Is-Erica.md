@@ -1,4 +1,4 @@
-# Hey! I'm Erica Whitehouse . . .
+# Coronavirus has affected my life . . .
 
 . . . in positive and negative ways. Due to the virus, students at my school were sent home in the spring and sports were cancelled for the fall. 
 This has caused me to miss out on two seasons that I could have spent with my team. 
